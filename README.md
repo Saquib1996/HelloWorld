@@ -11,3 +11,5 @@ me,that's why I really enjoy writing these books!
 ## My Hobbies
 One of my favorite things to do is go to Disneyland-even if I didn't go on my rides,just walking around the park and 
 feeling the magic is enough for me :smile:
+![headshot](me.jpg)![me](https://user-images.githubusercontent.com/106192257/205623095-c9eed4e1-2cdb-41c6-b244-bc600db55442.jpg)
+
